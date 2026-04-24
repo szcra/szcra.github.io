@@ -1,1 +1,0 @@
-# szcra.github.io
